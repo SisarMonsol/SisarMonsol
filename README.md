@@ -44,7 +44,7 @@ I will be uploading projects as I develop them:
 
 ## 📫 Contact Me
 - ✉️ cmontanezsolorzano@gmail.com  
-- 🔗 [LinkedIn]  
+- 🔗 https://www.linkedin.com/in/cesar-daniel-montañez-solorzano-7b0b761b5?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
 ---
 
